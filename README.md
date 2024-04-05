@@ -1,1 +1,1 @@
-![social-preview](https://github.com/mgrigorenko/mgrigorenko/assets/79719348/6901a5fe-bbdb-4975-aaa9-ae472945a6ae)
+![social-preview](https://github.com/mgrigorenko/mgrigorenko/assets/79719348/206f6ab8-3d1b-4f97-9937-9a4e77edf6cd)
