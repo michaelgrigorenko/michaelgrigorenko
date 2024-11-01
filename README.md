@@ -1,1 +1,1 @@
-![social-preview-dark](https://github.com/user-attachments/assets/c8b6a17e-7c8b-41e0-a00f-4fb66453a68d)
+![social-preview-color](https://github.com/user-attachments/assets/d057af4b-69fa-4d8c-a620-bc302420bd01)
